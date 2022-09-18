@@ -1,1 +1,1 @@
-# Python_home_work_go_it
+Solovei Danylo - Welcome you in my Git Hub. Have a good day!
